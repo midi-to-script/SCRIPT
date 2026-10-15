@@ -1,1 +1,1 @@
-# SCRIPT
+# MADE BY NINJA
